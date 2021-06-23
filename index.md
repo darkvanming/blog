@@ -1,2 +1,3 @@
-**THIS PAGE IS UNCONDINER it will be fin in next day**
-[IMEG](https://darkvanming.github.io/blog/test.jpg)
+**这个博客将在以后完善**
+[新冠图](https://darkvanming.github.io/blog/test.jpg)
+THIS IS THE BLOG OF DARKVANMING 境泽
